@@ -2,18 +2,17 @@
 
 
 
-🚀  Work in progress
+🤦 Not Coming Soon
 
 
-https://user-images.githubusercontent.com/26464535/145494270-fd7e6f07-96bd-4553-b1ad-a3d5633d43c5.mp4
+https://user-images.githubusercontent.com/26464535/152628503-231da6b7-2a4e-4830-addd-83cf4ac5e9b1.mp4
 
-Video source: [youtube](https://youtu.be/PsnYB6EiSCE?t=261)
-
-https://user-images.githubusercontent.com/26464535/145494274-4c611f81-85bf-43d5-b1be-e77dda99a082.mp4
- 
-Video source: [youtube](https://youtu.be/LqJp4byD6Cs?t=81)
-
-https://user-images.githubusercontent.com/26464535/145910430-ba45149d-6bdd-43ed-bb55-fbd9904608d8.mp4
-
-Video source: [youtube](https://www.youtube.com/udKE1ksKWDE)
-
+Video source: 
+[[1]](https://youtu.be/LqJp4byD6Cs?t=81)
+[[2]](https://youtu.be/PsnYB6EiSCE?t=261)
+[[3]](https://www.youtube.com/watch?v=WPdWvnAAurg)
+[[4]](https://www.youtube.com/watch?v=wM6exo00T5I)
+[[5]](https://www.youtube.com/watch?v=WitpNISKIxo)
+[[6]](https://www.youtube.com/watch?v=dz-3A9Sz7O4)
+[[7]](https://www.youtube.com/watch?v=lSD_vpfikbE)
+[[8]](https://www.youtube.com/watch?v=HzilDIhWhrE)
